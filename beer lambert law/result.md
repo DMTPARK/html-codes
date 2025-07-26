@@ -1,1 +1,1 @@
-https://sites.google.com/view/beer-lambertlawsimulation/home
+- 다음 web page에서 결과물을 확인하세요 : https://sites.google.com/view/beer-lambertlawsimulation/home
